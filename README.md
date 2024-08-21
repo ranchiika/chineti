@@ -1,7 +1,7 @@
 # CHINETI TIM
 ## Member
 - Chika
-- Ney
+- Neyneyiyo
 - Miss Tia
 
 Hari ini seneng banget masyaAllah,
