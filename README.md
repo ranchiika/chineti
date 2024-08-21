@@ -7,4 +7,5 @@
 Hari ini seneng banget masyaAllah,
 bukan dapet inimah
 berbunga2
+alhamdulillah akhirnya diakui juha
 Azek yang berbunga-bunga kayak bucket bunga
